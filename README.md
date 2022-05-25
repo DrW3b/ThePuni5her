@@ -1,1 +1,1 @@
-I am not responsible for the misuse (illegal Activities) this Script
+I am not responsible for the misuse of this script
